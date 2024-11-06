@@ -7,3 +7,5 @@ meu nome é Soraya seja bem vindo ao meu pefil.
 - email: 00001123284301SP@al.educacao.sp.gov.br
 - 😄 Pronouns: she
 - ultilizo este espaço para compartilhar meus projetos.
+![](https://media1.tenor.com/m/U8SbClJgVZwAAAAd/sakura-blossom.gif)
+
